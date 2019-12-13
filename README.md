@@ -1,0 +1,1 @@
+# symetryczny-nale-nik
